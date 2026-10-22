@@ -1,0 +1,1 @@
+Modello IA locale
